@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **jimmyvn.dev@gmail.com**
 
-- ⚡ Fun fact **I lost my flashlight 🔦 somewhere at the Great Sand Dunes. We need to go find it.**
+- ⚡ Fun fact **I'm left handed**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
